@@ -1,4 +1,4 @@
-Coder and technology enthusiast. Senior Product Engineer @ Waitrose & Partners 
+Coder and technology enthusiast. Senior Product Engineer @ Waitrose & Partners.
 
 Pronouns: he/him.
 
